@@ -1,0 +1,2 @@
+# INDU-NEWS
+Public voice
